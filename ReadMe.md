@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante de Análise e Desenvolvimento de Sistemas<br
+Sou estudante de Análise e Desenvolvimento de Sistemas
 
 
 ## 🌐 Socials:
